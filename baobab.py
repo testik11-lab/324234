@@ -1,0 +1,15 @@
+dwad
+w
+daw
+d
+awd
+awd
+wa
+d
+aw
+dw
+a
+daw
+d
+aw
+d
